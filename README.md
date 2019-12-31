@@ -1,0 +1,1 @@
+So2ifgjqGMZJhCrqpFMotQQAiJAiATuJLNAK2HrPLoNzK8hkqNbf9t8gmx6bzAQrXRMnWnoELoiD6GTv8guPBRwH5ynfgxmsPKs2N5Cr9DZ6+11      mine.wow.fairpool.xyz:6090
